@@ -1,1 +1,1 @@
-# https://yusuf__karaaslan.github.io
+# http://yusuf__karaaslan.github.io
